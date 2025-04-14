@@ -1,0 +1,177 @@
+# Podcast Teil 3: Seelenkampf
+
+-   Wir können dämonische und engelhafte Kräfte haben, die versuchen, unsere Gehirnhälften zu beeinflussen. Daher kommt auch die Vorstellung von einem Engel auf der einen und einem Teufel auf der anderen Schulter
+-   Das soll nicht heißen, dass eine Seite des Gehirns gut ist und die andere nicht
+-   Aber Dämonen werden sich auf der linken Seite aufhalten und versuchen, in die linke Gehirnhälfte zu gelangen, um jemanden zu beeinflussen. Und um sich gegen diese dämonische Präsenz zu wehren, versuchen entweder eine engelhafte Kraft oder die eigenen guten Absichten und der freie Wille des Menschen die rechte Gehirnhälfte zu schützen
+-   Die Engelsstation war schon immer auf der rechten Seite des Menschen stationiert. Sie war zuerst da, die dämonischen Kräfte kamen später und waren auf der linken Seite
+-   Die Entscheidung, die Engelskräfte auf die rechte Seite zu stellen, hat mit der Positionierung der Seele zu tun
+
+# Schütze deine Seele vor Dämonen
+
+-   Der Kampf zwischen Engel und Dämon, zwischen rechter und linker Seite, findet nicht rund um die Uhr statt. Er findet statt, wenn ein Dämon jemanden aktiv verfolgt
+-   Warum findet er überhaupt statt? Weil die Seele auf eine bestimmte Art und Weise im Gehirn positioniert ist und es auf der rechten Seite einen leichteren Einstiegspunkt gibt. Dort können Erinnerungen an gute und schöne Lebenserfahrungen für die Ewigkeit in unserer Seele gespeichert werden
+-   Wenn unsere Seele den Körper verlässt, ist dieser Eingang nicht mehr vorhanden
+-   Dämonen versuchen, die Seele umzudrehen, damit sie den Eingang auf der linken Seite haben und somit in sie eindringen können. Das ist nicht einfach
+-   Engel kommen auf die rechte Seite, um die Seele in der richtigen Position zu halten und den Eingang auf der rechten Seite zu bewahren
+-   Wenn jemand geistig gequält wird, bringt das die Seele aus dem Gleichgewicht und macht es leichter, umzukippen
+-   Dieser Kampf kann für die Menschen brutal sein
+-   Selbst wenn der Dämon nicht in der Lage ist, die Seele umzudrehen, kann er immer noch von der linken Seite aus Einfluss ausüben. Aber er muss sie umdrehen, um Informationen direkt in die Seele zu übertragen oder in sie einzudringen
+-   Wenn ein Dämon in der Lage ist, die Seele einer Person umzudrehen, kann er sie dazu bringen, schreckliche Dinge zu tun
+-   Engel versuchen, dir vollen Zugang zu deinem freien Willen zu geben; Dämonen versuchen, deinen freien Willen gegen dich zu verwenden
+-   Damit ein Dämon gewinnen kann, muss sich die Person auf irgendeine Weise auf ihre Seite schlagen und ihren Willen gegen die Engelsgegenwart stellen. Dabei kann es darum gehen, der Gier/Lust/etc. nachzugeben
+-   Nicht viele Menschen rufen die Engel an. In einem Stadion mit 100.000 Menschen gibt es vielleicht keinen, der regelmäßig mit den Engeln spricht
+-   Sie anzurufen ist sehr hilfreich, um sie für den Kampf gegen Dämonen zu gewinnen, obwohl sie auch andere Wege haben, um zu wissen, dass wir Hilfe brauchen. Einige davon sind das Neuronenfrequenzsignal, das wie ein Notsignal ist, das wir aussenden, und der steigende Dämonenfrequenzpegel
+-   Manche Menschen genießen es, einen Dämon in ihrer Nähe zu haben, auch wenn sie nicht verstehen, was da passiert
+-   Eine Seele hat eine Form, und die soll rund sein. Aber durch Turbulenzen kann sie verzerrt werden, wenn sie sich dem Terrain eines gequälten Geistes anpasst
+-   Sie kann vorübergehend Ecken entwickeln, die eine Möglichkeit für einen dämonischen Einbruch schaffen
+-   Wir sind auch widerstandsfähig und können durch unsere Prüfungen ein enormes Seelenwachstum erfahren
+-   *Spirituelles Licht des freien Willens: Wie du die Ecken deines Geistes abrundest*
+    -   Wenn du das Gefühl hast, dass deine Seele verletzt wurde, oder wenn du jemanden kennst, der sich in dieser Situation befindet, mach Folgendes:
+    -   Stell dir deine Seele als einen Ball vor, in dem viel Licht ist
+    -   Du kannst den Ball so hell sehen, wie du willst. Du kannst sie als helle Kugel sehen oder als ein sanftes, aber starkes Leuchten
+    -   Es muss nicht unbedingt eine perfekte Kugel sein
+    -   Fühle und sehe, wo es Störungen oder Verzerrungen gibt. Sieh die Ecken
+    -   Fülle diese Ecken mit Licht und Heilung
+    -   Stelle dir vor, wie deine Seele wieder rund wird
+-   *Spirituelles Licht des freien Willens: Schild des Lichts
+    -   Visualisiere, wie du deine Seele mit Licht umgibst, Licht in sie hineinstrahlst, sie heller und stärker und dämonensicher machst
+
+# Psychische Angriffe, Seelenresignation und Druck von Gleichaltrigen/Dämonen
+
+-   Auch wenn wir selbst frei von Dämonen sind, können Dämonen immer noch Chaos in unserem Leben verursachen, indem sie andere um uns herum beeinflussen. Dämonen schaffen auch Chaos im größeren Maßstab
+-   Psychische Angriffe sind real und sollten als Dämonenangriffe bezeichnet werden
+-   Ein Mensch kann eine andere Person ins Visier nehmen, aber es braucht einen Dämon, um diese negative Energie so weit zu bringen, dass jemand sie spüren kann.
+-   Mit negativen Gedanken über eine andere Person kann jemand seine Dämonen zu dieser Person schicken
+-   Wenn du dir bewusst bist, dass Dämonen involviert sind, kann das helfen, dich zu schützen und ihre Macht zu schwächen
+-   *Spirituelles Licht des freien Willens: Sich mit dem Bewusstsein verbinden, dass ein psychischer Angriff stattfindet*
+-   *Spirituelles Licht des freien Willens: Lichtschutzschild*
+    -   Stell dir vor, du hältst einen Schild, wie ihn die alten Armeen im Krieg benutzt haben
+    -   Halte ihn vor dich und stelle dir vor, wie er alle psychischen Angriffe ablenkt und in eine andere Richtung lenkt
+    -   Wenn du dir Sorgen machst, dass die Kraft auf eine andere Person übertragen werden könnte, mach dir keine Sorgen - sie war für dich bestimmt und wird niemand anderen beeinflussen
+-   Dämonen lieben es, wenn wir unsere Seelen an jemand anderen übergeben. Das nennt man Seelenabtretung, und zwar dann, wenn wir wider besseres Wissen und gegen unseren freien Willen handeln. Wenn das passiert, sind die Dämonen immer in irgendeiner Form beteiligt
+    -   Eine Form davon ist der Gruppenzwang, der als dämonischer Druck bezeichnet werden sollte
+    -   Schikanen bis zum Tod, Hühnchen im Auto spielen als Beispiele
+    -   Sie lieben es, wenn die Seelenresignation vor allem bei Frauen auftritt
+-   Dämonen mögen keinen Dialog. Sie mögen Unterwerfungs-/Dominanzdynamiken, die eine Person ungehört lassen
+-   Wenn jemand Dämonen hat, wollen die Dämonen mit dieser Person zusammenarbeiten, um dir ein emotionales und mentales Schleudertrauma zu verpassen, wenn du mit ihnen interagierst
+-   Sie lieben es, Verwirrung zu stiften, Probleme zwischen Menschen zu schaffen und Probleme zu verkomplizieren, die einfach zu lösen sein sollten
+-   Dämonen nähren sich von den narzisstischen Tendenzen und dem Ego, den Alpha-Tendenzen der Menschen
+-   *Spirituelles Licht des freien Willens: Sich bewusst zu machen, wann dies geschieht, kann ein wirksamer Weg sein, es zu entschärfen
+-   *Das spirituelle Licht des freien Willens: Halte dem Narzissten den Spiegel vor
+    -   Einem Narzissten buchstäblich den Spiegel vorzuhalten, wenn er es nicht erwartet, kann den Dämon, der die narzisstischen Tendenzen nährt, erschüttern
+-   Dämonen versuchen, Menschen mit sich selbst zu beschäftigen und sie vom Leid anderer abzulenken
+-   Dämonen können jemanden metaphorisch blenden, um diese Abkopplung zu verstärken
+-   Dämonen schüren die Misshandlung von Tieren
+-   Dämonen sind am Werk, wenn du das Gefühl hast, dass du deinen Selbstwert verlierst
+-   Post Demonic Exposure (PDE) - wir können die Auswirkungen von Dämonen aus der Vergangenheit in uns tragen. Das Bewusstsein, dass Dämonen an dem Trauma beteiligt waren, kann dabei helfen, dies zu lösen
+-   *Spirituelles Licht des freien Willens: Wer in der Vergangenheit verletzt wurde, sucht*
+    -   Es gibt ein spirituelles Gesetz, das besagt, dass du, wenn ein Dämon dir in der Vergangenheit Schaden zugefügt hat, du dir aber nicht bewusst warst, dass er dämonisch war, jetzt die Autorität hast, diesen Dämon zu vernichten
+    -   Es gilt speziell für Dämonen, die in der Vergangenheit Schaden verursacht haben. Du kannst sie nicht auf Dämonen anwenden, die dir in der Gegenwart Schaden zufügen
+    -   Damit sie angewendet werden kann, muss eine emotionale Verletzung durch einen Dämon vorliegen, und es muss genügend Zeit vergangen sein, bis der Dämon dich verlassen hat
+    -   Du hast gottgegebene Rechte über diese vergangenen Dämonen. Du hast ein Anrecht auf eine dämonische Verletzung, weil der Dämon deine Unwissenheit unfair ausgenutzt hat
+    -   Du kannst dir den verletzten Sucher aus der Vergangenheit als einen Draht aus Licht vorstellen. Du kannst ihn auch als ein Projektil aus Licht sehen
+    -   Am besten schickst du es vor einem Nickerchen, einer Pause oder einer Nachtruhe
+    -   Stelle dir das Projektil vor dir vor und sage: "Suche diesen Dämon"
+    -   Beobachte, wie das Projektil die Station verlässt und aus deinem Blickfeld verschwindet. Du musst nicht wissen, wohin es fliegt oder sehen, dass es den Dämon getötet hat
+    -   Du wirst merken, dass es erfolgreich war, wenn du anfängst, positive Veränderungen in deinem Leben zu sehen. Markiere diese Veränderungen, egal ob sie subtil oder ausgeprägter sind
+    -   Der Sucher für vergangenes Leid ist nur für Dämonen. Er kann nicht auf eine Person geschickt werden. Er kann einen Dämon treffen, der von einer Person Besitz ergreift oder sie beeinflusst
+    -   Wenn jemand das aus irgendeinem Grund nicht selbst tun kann, z.B. weil er das Projektil nicht visualisieren kann, können wir es für ihn tun
+-   *Spirituelles Leben des freien Willens: Dämonische Verlängerung auflösen*
+    -   Wir können Schnüre (genauer: Verlängerungen) mit Dämonen haben, die uns durch andere Menschen verhöhnen
+    -   Diese Verlängerungen sind dicker als Schnüre und entsprechen fast der Form und Größe eines menschlichen Torsos
+    -   Ein Grund, warum das Durchtrennen der Schnur in einer negativen Beziehung vielleicht nicht funktioniert, ist, dass du die Verlängerung mit dem Dämon hinter der Person, die dich negativ beeinflusst, tatsächlich durchtrennen musst
+    -   Beim Durchtrennen einer schlechten Beziehung geht es in Wirklichkeit darum, die Verbindung zwischen dir und einem Dämon aufzulösen
+    -   Die Suche nach Verletzungen in der Vergangenheit ist eine Möglichkeit, eine Verbindung aufzulösen
+    -   Bei schlechten Beziehungen in der Gegenwart musst du zuerst anerkennen, dass du es mit einer dämonischen Verlängerung zu tun hast
+    -   Dann der nächste Schritt: Identifiziere die Farbe der Verlängerung. Normalerweise sind das schöne Farben - sogar fröhlich und wärmend. Sie versuchen, uns zu täuschen und uns anzusprechen, und verwenden Farben, die wir mögen
+    -   Licht ist der Weg, um die Verlängerung aufzulösen. Stell dir vor, du pulverisierst die Verlängerung mit Lichtgranulat, das an der Verlängerung haftet und sie auflöst
+    -   Dabei muss es nicht darum gehen, den Kontakt zu der Person ganz abzubrechen, sondern es kann auch nur darum gehen, die Beziehung zu verschieben
+-   Energiekraft-Dämme
+    -   Dämonen sind nicht immer tatsächliche Seelen, die verstorben sind. Dämonen können auch aus der Essenz einer Seele entstehen - den schlimmsten Charakterzügen einer Seele.
+    -   Gefallene Engel erschaffen diese Dämonen aus dem Abdruck der Seele einer Person, wenn diese stirbt. Das ist wie Klonen, Duplizieren.
+    -   Das sind in der Regel mildere, weniger aggressive Dämonen
+    -   Sie können sich mit anderen Dämonen verbinden und sie stärken
+    -   Zwei Formen - Derms of Taker und Derms of Alter Ego
+        -   Derms of Taker: Tritt- und Kletterdämonen. Sie treten auf andere und zerstören sie, um aufzusteigen.
+        -   Derms of Alter Ego
+        -   Das Bewusstsein, dass deine Seele auf diese Weise benutzt werden könnte, ist eine Waffe für sich selbst
+        -   *Spirituelles Licht des freien Willens: Hinterfragen*
+-   *Spirituelles Licht des freien Willens: Lichtblase
+    -   Präventiv, um zu verhindern, dass Dämonen sich einmischen oder eine Rolle in Situationen spielen und um ihre Macht zu begrenzen
+    -   Mache diese Visualisierung, wenn du dich am Abend vor einem Treffen, einer Veranstaltung, einem Treffen oder einer Besprechung hinlegst
+    -   Eltern können dies auch für ihre Kinder tun, z.B. in der Nacht, bevor ihr Kind verreist, oder vor einem Ereignis, bei dem sie mit dämonischem Druck rechnen (College, Camp, etc.)
+    -   Visualisiere Licht um deinen geliebten Menschen. Umhülle deinen geliebten Menschen mit einer Blase aus Licht
+    -   Du musst die Visualisierung sehen und die Engel bitten, dieses Licht stark zu halten und die Lichtblase zu bewachen, damit die Dämonen anderer Menschen deinen geliebten Menschen nicht beeinflussen oder in eine schwierige Situation bringen können
+    -   Bitte die Engel um Hilfe bei der Verteidigung und dem Schutz ihres Bewusstseins, ihrer Seele und ihres physischen Körpers
+    -   Bitte die Engel, Licht herabzulassen, um negative oder dunkle Kräfte jeglicher Art zu vernichten. Jegliche negative Energie, Wesenheiten, dämonische Wesenheiten, die möglicherweise am nächsten Tag in der Nähe deines geliebten Menschen sein könnten
+    -   Visualisiere, dass das Licht herabkommt, in deine Vision kommt, deinen geliebten Menschen stärkt und negative Kräfte und Energie vernichtet
+    -   Sage das Wort Licht so oft, wie du es für richtig hältst, und beobachte, wie die Dunkelheit zerstört wird
+    -   Mach das so lange, bis du keine Dunkelheit mehr siehst, sondern nur noch Licht
+    -   Wenn du es nicht am Abend vorher machen kannst, dann mach es jederzeit, auch wenn es nur eine Minute dauert. Es wird immer noch Kraft haben
+
+# Manifestation, "Pech" und verrückte Unfälle
+
+-   Es ist wichtig, sich der negativen Kräfte bewusst zu sein. Denkschulen, die nur positives Denken fordern und jedes Verständnis für negative Kräfte vermeiden, führen nur dazu, dass du von diesen dunklen Kräften ausgenutzt wirst.
+-   Das ist so, als würde man so tun, als gäbe es keine Keime
+-   Es gibt Menschen, die sich einen Rausch verschaffen, indem sie sich so viele Viren und Geschlechtskrankheiten wie möglich einfangen. Dämonische Besessenheit ist verantwortlich
+-   Das Bewusstsein über dämonische Verstrickungen tötet dämonische Macht und kann dämonische Besessenheit entschärfen
+-   Viele unserer Gesetze sind dämonisch - z.B. halten sie Menschen davon ab, anderen zu helfen, oder sie behindern Wohltätigkeitsorganisationen. Sie wollen nicht, dass Menschen anderen helfen
+-   Dämonen können z.B. dafür sorgen, dass es sehr schwierig ist, bestimmte Probleme zu lösen, wie z.B. eine Telefonrechnung oder einen Unfall mit Blechschaden
+-   Je mehr Gutes du tust, desto mehr Widerstand wirst du bekommen
+-   Wenn du dir der dunklen Mächte bewusst bist, werden sich nicht noch mehr von ihnen in deinem Leben manifestieren oder für mehr Unruhe sorgen. Das Gegenteil ist der Fall
+-   Manche Dinge passieren zufällig, aber nicht alle Dinge, die zufällig erscheinen, sind es auch wirklich
+-   Dämonen sind oft in verrückte Unfälle verwickelt
+-   Dämonen lieben Marihuana, aber besonders lieben sie Alkohol
+-   Gefallene Engel verbreiten die falsche Vorstellung, dass du sie in dein Leben holst, wenn du über Dämonen sprichst oder an sie denkst
+-   Sich der Dämonen bewusst zu sein, bedeutet nicht, dass du ständig an sie denken musst
+-   Dämonen haben nicht die Macht, alles geschehen zu lassen, aber sie können Dinge auf unheimliche Weise anordnen und Menschen mit Suggestionen in Versuchung führen
+-   Rufe die Engel an, wenn du etwas siehst, das schlecht ausgehen könnte
+-   Herde auf der Suche nach Seelen:
+    -   Noch keine Dämonen, aber die meisten werden irgendwann zu Dämonen
+    -   Nicht gut, aber auch nicht ganz böse
+    -   Die gefallenen Engel haben ihnen endlosen Sex und Orgien versprochen, aber sie bekommen sie nicht
+    -   Sie stecken in einem Zwischenbereich des spirituellen Gitters fest
+    -   Sie können zu Hunderttausenden ausschwärmen und mit ihren Frequenzen Dinge wie elektrische Netze beeinflussen
+    -   Sie neigen dazu, um Sonneneruptionen herumzuschwärmen und ihnen den Weg zu weisen. Während der Rückläufigkeit des Merkurs werden sie zu einer Quelle negativer Energie
+    -   Alle Dämonen richten während der Rückläufigkeit des Quecksilbers Verwüstungen an, und die Seelen, die nach Herden suchen, sind im Vergleich dazu praktisch harmlos
+    -   Diese Seelen können die Menschen an sich nicht wirklich angreifen, aber die Menschen können die negative Energie ihrer Schwärme spüren
+    -   Sie führen Naturkatastrophen wie Wirbelstürme und Tsunamis an
+    -   Sie neigen dazu, sich in verschiedenen Gebieten auf dem Planeten niederzulassen, z. B. im Bermuda-Dreieck
+    -   Die Anführer, die aus der Herde hervorgehen und Seelen suchen, werden zu Derms of Static
+    -   Diese Dämonen sind ziemlich gewöhnlich und arbeiten daran, ihre bösen Absichten zu beweisen und ihren Status unter den vollwertigen Dämonen zu erhöhen. Sie neigen dazu, sich einfach in den Weg zu stellen
+
+# Schachmatt
+
+-   Dämonen haben verschiedene Ränge und unterschiedliche Fähigkeiten - ein bisschen wie Schachfiguren
+-   Die meisten Dämonen verstehen und respektieren das Schachspiel
+-   Es ist ein Spiel, das in Freimaurerhallen, in den Zigarrenzimmern der Hierarchie und in akademischen Eliteeinrichtungen gespielt wird
+-   Dämonen sind Schachexperten
+-   Dämonen haben alle Schlachten im Krieg auf die eine oder andere Weise beeinflusst
+-   Das bedeutet nicht, dass du aufhören solltest, Schach zu spielen, oder dass es schlecht ist, es zu mögen. Schach zu spielen erzeugt keine dunkle Energie
+-   Aber Schach wird von Dämonen sehr verehrt. Sie werden dich eher respektieren, wenn du es spielst
+-   *Spirituelles Licht des freien Willens: Schach spielen, oder auch nur ein Schachbrett in deinem Haus haben*
+    -   Spiele Schach, wann immer du einen dämonischen Einfluss vermutest und sich die Dinge ungewöhnlich schwierig anfühlen
+    -   Wenn du das Spiel mit der Absicht spielst, einen Dämon wissen zu lassen, dass du dir seiner bewusst bist und ihn besiegen willst, kannst du
+    -   Es wird die dämonische Energie verblüffen und verwirren. Es erinnert sie daran, dass sie bereits verloren haben - es erinnert sie an ihr Fehlverhalten und daran, dass sie die falsche Seite gewählt haben
+    -   Ein Schachbrett im Haus zu haben, ist viel mächtiger als ein Salbei im Haus. Es ist allein schon eine Abschreckung für Dämonen
+-   *Spiritual Light of Free Will: Schach spielen gegen einen Dämon*
+    -   Wenn ein Dämon dich verspottet, kannst du ihn zu einer Partie Schach einladen
+    -   Dabei wird ein Schachbrett als Séance-Brett benutzt
+    -   Es wird dich nicht in Gefahr bringen und auch keine Widrigkeiten oder Stress in dein Leben bringen
+    -   Wenn du gegen einen Dämon spielst, wird ein Engel auftauchen. Sie wissen genauso viel über Schach wie Dämonen
+    -   Weise einem Dämon eine Seite zu (es ist egal, welche), und spiele deine Seite mit den stärksten Zügen, die du kannst, und die Seite des Dämons mit den schwächsten Zügen
+    -   Das verschlimmert die Dämonen und schließt sie kurz
+-   Viele Engel tragen Lichtruten bei sich. Das sind Engelswaffen, die die Engel benutzen, um sich zu verteidigen und auch um Kraft zu erzeugen, die von Gott stammt
+-   Gott gibt den Lichtstäben ständig göttliche Kräfte
+-   Die Macht der Lichtstäbe liegt im geistigen, übernatürlichen Bereich. Aber diese Kraft kann in einigen Fällen in den physischen Bereich umgewandelt werden - übertragbare Effekte, die aus dem spirituellen Bereich in den physischen Bereich übergehen
+-   *Spirituelles Licht des freien Willens: Einen Engel darum bitten, dass du seinen Lichtstab benutzen darfst*
+    -   Nutze den Lichtstab eines Engels auf jede Art und Weise, die du brauchst und mit der du dich wohl fühlst
+    -   Du kannst dir z.B. vorstellen, dass der Lichtstab eines Engels deine Seele und dein spirituelles Selbst aufrecht hält, wenn du müde bist
+    -   Oder du kannst um einen Engelslichtstab bitten, um Licht zu spenden, um körperliche Gefahren abzuwenden, z.B. vor einem Flug oder bei Turbulenzen während eines Fluges
+    -   Richte den Lichtstab in die Richtung, in die du das Licht schicken willst. Du musst nicht deinen ganzen Arm benutzen - nur das Handgelenk und die Hand sind in Ordnung. Es ist keine große körperliche Anstrengung nötig
+    -   Du kannst den Lichtstab auch benutzen, nachdem du einen dämonischen Fortsatz aufgelöst hast, um die Enden zu kauterisieren und zu verhindern, dass er jemals wieder wächst
+    -   Du kannst den Lichtstab benutzen, um jede negative Energie zu zerstören, die du um dich herum spürst. Du kannst ihn z.B. benutzen, um ein Haus zu säubern
+    -   Stell dir vor, dass der Lichtstab für dich benutzt wird, dass ein Engel ihn dir gegeben hat und dass du ihn in der Hand hältst
+    -   Wenn der Lichtstab einen Dämon direkt trifft, kann er ihn vernichten. Stell dir vor, sie platzen wie Seifenblasen
+    -   Engel sind für immer mit ihren Lichtstäben verbunden. Wenn du ihn benutzt, gehört er nicht ganz dir, und der Engel hat immer noch die Kontrolle. Und er wird immer zu ihnen zurückkehren
+-   \"Wenn dir diese spirituellen Offenbarungen und Prophezeiungen gefallen haben, wird es noch mehr davon geben."
