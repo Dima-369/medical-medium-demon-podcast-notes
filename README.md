@@ -1,3 +1,4 @@
+German notes
 
 https://old.reddit.com/r/medicalmedium/comments/1jlyvz1/angels_demons_and_spiritual_tools_notes_on_part_i/
 
